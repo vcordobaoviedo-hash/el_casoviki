@@ -9,3 +9,8 @@ Tomás dudó unos segundos, pero la curiosidad fue más fuerte. Se acercó al li
 “Solo quien se anima a leer puede descubrir lo oculto”, decía el mensaje.
 
 Tomás apoyó su mano sobre la página y, en un instante, sintió que todo a su alrededor cambiaba. La biblioteca ya no estaba en silencio: los libros susurraban historias, los personajes cobraban vida entre los estantes y una luz cálida llenaba el lugar.
+
+Asustado pero fascinado, cerró el libro de golpe. Todo volvió a la normalidad.
+
+Antes de irse, sonrió. Desde ese día, Tomás ya no tuvo miedo de la biblioteca… porque sabía que en realidad era una puerta a miles de historias esperando ser descubiertas.
+
